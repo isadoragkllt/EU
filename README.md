@@ -1,1 +1,1 @@
-# EU
+Meu nome é Isadora Gonçalves Kollet, eu nasci no dia 9 de junho de 2008, tenho 16 anos, nasci em Porto Alegre, RS, mas atualmente moro no Guarujá. Sou uma pessoa curiosa, gosto muito de conhecer lugares e coisas novas no geral, busco sempre conhecimento e diversão ao lado de quem eu amo. Valorizo momentos de alegria com as pessoas importantes da minha vida e sonho bem alto, planejando uma vida plena e estabilizada.
